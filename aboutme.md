@@ -24,20 +24,20 @@ When I was a kid I used to be in video games and get into game automation script
 
 ---
 
-Then college hit I had to do something with my life other than what I was already good at and something I wanted dive deeper into. I wanted to explore the mind and body with psychology and a minor in human physilogy. At same time I kept up with development and software. A friend reach out and wanted to start a club called flying samartians at SDSU and wanted organize it with a website, emails, SEO and calendar events. I reached back out and help start the vision online vision of SDSU Flying Samartians. 
+After earning my B.A. in Psychology with a minor in Human Physiology from San Diego State University. A friend presented me with an exciting opportunity to help establish an online presence for the SDSU Flying Samaritans, a group of student-nurses and pre-med doctors crossing the border to provide medical services to a high health risk population. Eager to make a difference, I collaborated with him to develop a comprehensive digital platform and presence.
 
 ---
 
 ## Education
 
-After I gradated I wondered how I was going to apply my passions and skills. I enrolled and applied for teacher creditenal program. Not soon afterwards I was not cut out for it.
+I enrolled and applied for teacher creditenal program. Not soon afterwards I was not cut out for it.
 
 ---
 
 ## After Education - Certification
 
-I still had a passion for helping and reaching out to people.
-I went back to school started with what I was already good at but formalized it.
+I still had a passion for mission driven work.
+I went back to school started  at but formalized it.
 
 ---
 ## Trilogy/2u/edx
